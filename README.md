@@ -5,5 +5,5 @@ repository in september 2023
 for my website.
 
 i love music and coding,
-so this will be fun, and i hope that
+so this will be fun, and i know that
 i can come a long way from here.
